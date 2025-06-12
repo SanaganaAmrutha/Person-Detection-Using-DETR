@@ -93,5 +93,5 @@ MIT License — Free to use and modify
 ## 📬 Contact
 
 Have suggestions or questions?  
-📧 Email me at: `sailubandi33@gmail.com`
+📧 Email me at: `sanaganaamrutha@gmail.com`
 
